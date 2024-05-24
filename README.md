@@ -30,27 +30,33 @@ By coming to the barn, **you agree to**:
 [My Address](https://maps.app.goo.gl/QKyaoC3Bj3xHo3s68)
 
 ## Allergies
-If you are allergic to pollen, even slightly, **bring allergy medication**. We get about 2mm of pollen on the ground every day during the summer.
+If you are allergic to pollen, even slightly, **bring allergy medication**. I suggest Zyrtec. We get about 2mm of pollen on the ground every day during the summer.
 
 ## Attendees
 - Frank
 - Tyler
 - Jerico
 - Noij
-- Jacob
-- Monte
-- Conner (75% confirmed)
-- Dylan (not sure)
+- Jacob **????**
+- Conner
+- Dylan
 
 ## Flight info
 You will need to buy your ticket to land at **Denver International Airport** (DEN). I suggest that you buy your tickets **ASAP** to get the cheapest tickets. Coordinate with your fellow gamers to get on the same flights (Texans).
 
-### Current arrivals:
-- Jerico > July 12, **???TIME???**
-- Tyler, Noij, Tyler > **???**
-- Conner, Monte > **???**
-- Dylan > **???**
+### Current Arrivals:
+- Jerico > July 6, 11:44AM
+- Tyler, Noij, Conner > July 6, 8:18AM
+- Dylan > July 10, 12:47PM
 - Jacob > **???**
+
+
+### Current Departures:
+- Jerico > July 14, 
+- Tyler, Noij, Conner > July 14, 6:08AM
+- Dylan > July 14, 10:36AM
+- Jacob > **???**
+
 
 *If someone already has their ticket, DM me (Frank) so that I can update this form*
 
