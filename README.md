@@ -52,7 +52,7 @@ You will need to buy your ticket to land at **Denver International Airport** (DE
 
 
 ### Current Departures:
-- Jerico > July 14, 
+- Jerico > July 14, 12:00 AM
 - Tyler, Noij, Conner > July 14, 6:08AM
 - Dylan > July 14, 10:36AM
 - Jacob > **???**
