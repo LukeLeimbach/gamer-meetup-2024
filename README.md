@@ -2,6 +2,11 @@
 
 What's up frankers???? In this document, I will lay out all the important info about what's going down in Colorado. DM me if I miss something and I will update this form.
 
+## UPDATES
+- All attendees need to pay Jacob $100 to help pay for the rental car. If you can't afford it, dm Frank or Tyler.
+- All grocery and gas bills will be split evenly amongst gamers, regardless of how much you eat.
+- Restaurant bills will be *separate* unless otherwise stated.
+
 ## Expectations (READ FULLY)
 This is the most important part of the whole trip which is why it's at the top of this list. The barn does not belong to me, it's my parents. They are very generous to let us come hang out at there for the week. With that being said, the only reason that they are letting us host another gamer meetup in the barn is because of the respect and graciousness shown by Tyler, Noah, and Conner during Gamer Meetup 2022. It's an amazing space that I'm blessed to share with you all, and I ask that you all treat my home, family, and property with the utmost respect. Many of you have not been to the barn yet, and I ask you, for the sake of your dignity and future Gamer Meetups, that you are tidy, polite, and extremely respectful.
 
